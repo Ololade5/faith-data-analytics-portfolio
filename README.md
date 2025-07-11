@@ -44,5 +44,5 @@ This repository contains a collection of projects completed as part of my data a
 I am passionate about turning raw data into meaningful insights that drive decisions. This portfolio is a reflection of my growing expertise in the data analytics field.
 
 Let’s connect!  
-**[LinkedIn](#)** | **[Email](#)**
+**[https://www.linkedin.com/in/faith-israel-250298is?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=ios_app](#)** | **[faithlol98@gmail.com](#)**
 
